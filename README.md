@@ -1,1 +1,0 @@
-# Tugas-Pratikum-pemrograman-kompter
